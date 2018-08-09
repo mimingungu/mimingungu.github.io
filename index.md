@@ -6,7 +6,9 @@ Chào mọi người! Mình là Minh Nguyệt, hiện đang sống và học t�
 ---
 ## Nước Thuỵ Điển như thế nào? 
 ### Một chút về thời tiết
-Có lẽ các bạn không biết rằng người Thuỵ Điển thường xuyên nói về thời tiết, dù nắng hay mưa người ta cũng xem đó như một thú vui để bàn luận. Vì Thuỵ Điển nằm ở khu vực Bắc Âu nên có khí hậu hàn đới. Điều đó cũng có nghĩa rằng mùa đông ở đây thật sự rất khắc nghiệt, có những ngày lạnh đến nỗi thở thôi cũng là một việc khó khăn. Mình nhớ có những ngày mùa đông, lúc đi học trời vẫn còn tối và lúc về nhà thì trời cũng đã tối rồi. Nó làm cho mình có cảm giác rằng những tia nắng của mặt trời thật sự rất hiếm hoi khi nơi đây bắt đầu về đông. Mùa hè ở đây cũng nghiệt ngã chẳng kém so với mùa đông là mấy. Có những năm mưa liên miên suốt mùa hè, hay như năm nay hạn hán đến nỗi cháy rừng là chuyện hằng ngày.   
+Có lẽ các bạn không biết rằng người Thuỵ Điển thường xuyên nói về thời tiết, dù nắng hay mưa người ta cũng xem đó như một thú vui để bàn luận. Vì Thuỵ Điển nằm ở khu vực Bắc Âu nên có khí hậu hàn đới. Điều đó cũng có nghĩa rằng mùa đông ở đây thật sự rất khắc nghiệt, có những ngày lạnh đến nỗi thở thôi cũng là một việc khó khăn. Mình nhớ có những ngày mùa đông, lúc đi học trời vẫn còn tối và lúc về nhà thì trời cũng đã tối rồi. Nó làm cho mình có cảm giác rằng những tia nắng của mặt trời thật sự rất hiếm hoi khi nơi đây bắt đầu về đông. Mùa hè ở đây cũng nghiệt ngã chẳng kém so với mùa đông là mấy. Có những năm mưa liên miên suốt mùa hè, hay như năm nay hạn hán đến nỗi cháy rừng là chuyện hằng ngày. 
+
+### Về cuộc sống nơi đây 
 
 ---
 ## Cấp ba của mình ở Thuỵ Điển ra sao? 
