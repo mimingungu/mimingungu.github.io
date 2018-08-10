@@ -12,7 +12,7 @@ Có lẽ các bạn không biết rằng người Thuỵ Điển thường xuyê
 
 ### Về cuộc sống nơi đây 
 
-Khác hẳn với cuộc sống tấp nập và ồn ào ở Việt Nam, cuộc sống nơi đây yên bình đến lạ lùng. Không tiếng còi xe hối hả, không tiếng chào hàng từ mỗi sáng tinh mơ tới tối khuya, hay tiếng nô đùa của trẻ con ngoài xóm hoà lẫn cùng tiếng các bác, các mẹ ngồi buôn chuyện cùng nhau. Nếu không may bạn đặt chân tới Thuỵ Điển những ngày đông, khi ngoài kia tuyết rơi trắng xoá cả một vùng, mình đoán bạn sẽ cảm thấy vô cùng stress và luôn tự hỏi rằng tại sao vạn vật xung quanh lại yên ắng đến vậy.      
+Khác hẳn với cuộc sống tấp nập và ồn ào ở Việt Nam, cuộc sống nơi đây yên bình đến lạ lùng. Không tiếng còi xe hối hả, không tiếng chào hàng từ mỗi sáng tinh mơ tới tối khuya, hay tiếng nô đùa của trẻ con ngoài xóm hoà lẫn cùng tiếng các bác, các mẹ ngồi buôn chuyện cùng nhau. Nếu không may bạn đặt chân tới Thuỵ Điển những ngày đông, khi ngoài kia tuyết rơi trắng xoá cả một vùng, mình đoán bạn sẽ cảm thấy vô cùng _stress_ và luôn tự hỏi rằng tại sao vạn vật xung quanh lại yên ắng đến vậy?       
 
 ---
 ## Cấp ba của mình ở Thuỵ Điển ra sao? 
